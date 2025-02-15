@@ -43,7 +43,7 @@ We provide a wide range of services tailored to meet industry-specific needs:
 - **Innovation:** Leveraging the latest technologies to stay ahead of the curve.
 
 ## Contact Us
-📧 Email:  
+📧 Email: techchaininfrastructure@gmail.com
 🌍 Website:   
 📍 Location: 
 
