@@ -44,7 +44,7 @@ We provide a wide range of services tailored to meet industry-specific needs:
 
 ## Contact Us
 📧 Email: techchaininfrastructure@gmail.com
-🌍 Website:   
-📍 Location: 
+🌍 Website:
+📍 Location: Nigeria 
 
 Let’s build the future together with **Tech Chain Infrastructure (TCI)!**
